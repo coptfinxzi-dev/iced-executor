@@ -25,9 +25,9 @@ Move your mouse over images for **real 3D tilt effect** ❄️
 
 ## ⬇️ Downloads
 
-[Download Mirror 1](https://download.com)  
-[Download Mirror 2](https://download.com)  
-[Download Mirror 3](https://download.com)  
+[Download Mirror 1]
+[Download Mirror 2]
+[Download Mirror 3]
 
 ---
 
